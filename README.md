@@ -1,2 +1,0 @@
-# TerapiaNatural
-PaginaMasajes
